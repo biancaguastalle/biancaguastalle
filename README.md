@@ -1,4 +1,11 @@
-### Hi there 👋
+### **Bianca Fernandes Pereira** 
+### 3 ano B - tecnologia
+![tumblr_lmwsamrrxT1qagx30 0 0](https://github.com/biancaguastalle/biancaguastalle/assets/170113020/124cd235-c5fe-40a9-b24c-cadcac011dc5)
+
+- Dona do **Kaio Pessoa**
+
+
+
 
 <!--
 **biancaguastalle/biancaguastalle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
